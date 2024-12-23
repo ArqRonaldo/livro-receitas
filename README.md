@@ -17,7 +17,7 @@
 - 1 copo de Creme de leite;
 - adicione Batata palha (_a gosto_)
 
-  ### Modo de Preparo - 1 hora
+ ### Modo de Preparo - 1 hora
 
   1. Em uma panela , misture o frango , o alho , a maionese , o sal e a pimenta.
   2. Em uma frigideira grande , derreta a manteiga e doure a cebola.
